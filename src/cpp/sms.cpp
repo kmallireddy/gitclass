@@ -1,0 +1,1 @@
+strta writing code
